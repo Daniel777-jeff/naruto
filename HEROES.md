@@ -4,3 +4,5 @@
 * investigar los planes
 *itachi
 *tobi
+*haschirama
+*minato
