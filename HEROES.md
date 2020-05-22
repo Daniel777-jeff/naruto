@@ -3,3 +3,4 @@
 * SASUKE UCHIJA  (modo Amaterasu)
 * investigar los planes
 *itachi
+*tobi
