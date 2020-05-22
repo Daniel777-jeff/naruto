@@ -1,0 +1,1 @@
+* NARUTO UZUMAKI (modo sabio xd)
